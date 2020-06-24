@@ -1,3 +1,2 @@
-# Clone-Smasher
-The best agario clone bots
-is this a virus?
+Bro, is this a virus also get on aHUB add me Omarnajjar
+Miss u
